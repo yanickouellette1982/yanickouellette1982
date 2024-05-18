@@ -14,3 +14,4 @@ plus 20 ans payer davance sinon pas payer pas travailler pas dargens dans vos pa
 pour le balasmi.
 programateur squit game pour les fille.lw finaliste pour gagner contre moi dou se faire tirer par harpe.voir ma lantille de maix jeux de phaaron de tout temp quand mon sur mon cell.ou bonne guerre esclave kaka rotte vs grongnop
 --->
+@🔱⚖️⚜️🎹🎰🎩📼▶️⏹️📼🎩🎰🎹⚜️⚖️🔱
